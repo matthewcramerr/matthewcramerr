@@ -12,7 +12,7 @@
 
 Graduating from the University of Wisconsin-Madison next semester (spring, 2025).
 
-- Companies I have Built, Founded, or Helped: Savvy BuyBacks, Four Point Tutoring, Campus Hands LLC, Campus Hands Pro
+- Companies I have Founded: Savvy BuyBacks, Four Point Tutoring, Campus Hands LLC, Campus Hands Pro, ChoreOFF, Based Bros, 
 
 
 <!---
