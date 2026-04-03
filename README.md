@@ -13,11 +13,12 @@ Campus Hands LLC, Savvy BuyBacks, Four Point Tutoring, Campus Hands Pro, Snow Sa
 
 
 
-App Ideas:
+App Ideas: Gadzooks
 
 
 
 Crazy Ideas: 
+  - a forward facing camera like phone case for Gen-As once they hit college and need to see what's in front of them without looking up off of their phones. Inspired by my time walking around campus seeing people on phones running into each other. 
 
 
 
